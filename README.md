@@ -1,4 +1,4 @@
-👋 Hi, My name is Devika, and here's a few words about me. 
+👋 Hi, My name is Devika, and here's a little bit about me. 
 
 My fascination for cars when I was younger eventually developed into a passion for vehicle engineering. This passion drove me to pursue higher education in this field and carried me through my education at Michigan Tech, where I found more resources available to me than I could have ever imagined. After two years of rigorous master’s program specialising in electric vehicles and controls at Tech, I am grateful to be able to contribute to the new era of mobility.
 
